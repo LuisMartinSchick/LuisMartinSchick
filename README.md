@@ -5,6 +5,6 @@
 - 👯 I’m looking to collaborate on projects I can learn from.
 - 🤔 I’m looking for help with finding new projects.
 - 💬 Ask me about how I'm doing!
-- 📫 How to reach me: [E-Mail](mailto:luis3720@hotmail.com?subject=[GitHub]Contact)
+- 📫 How to reach me: [E-Mail](mailto:luis3720@hotmail.com?subject=[GitHub]Contact) or on [my website!](https://luismartinschick.com/)
 - ⚡ Fun fact: Nocellara Olives are the best!
 
